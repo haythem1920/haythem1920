@@ -1,5 +1,5 @@
 - 👋 Hi, I’m BENMIZOUNI Haythem
-- 👀 I’m a Business Intelligence student at ESPRIT
+- 👀 I’m a Business Intelligence Engineering student at ESPRIT
 - 💞️ I’m looking for an end of studies internship
 - 📫 you can reach me on LinkedIn : https://www.linkedin.com/in/ben-mizouni-haythem-2ab621178/
 
